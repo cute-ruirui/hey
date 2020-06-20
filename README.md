@@ -1,5 +1,6 @@
 # hey
-本仓库Issues中为一些乱七八糟的教程，大部分为原创This article mainly introduces who is cute-ruirui and how you can contact her~
+本仓库Issues中为一些乱七八糟的教程，大部分为原创  
+This article mainly introduces who is cute-ruirui and how you can contact her~
 
 
 
@@ -18,7 +19,7 @@ or  `cute-ruirui@qq.com`
 or  `cute-ruirui@outlook.com`
 
 ## Use WeChat to contact me
-**If you don'tknow me in reality, please don't add me on WeChat, it is recommended to contact by email!**
+**If you don'tknow me in reality, please don't add me on WeChat, it is recommended to contact by email!**  
 My WeChat ID   `gary20130619`
 ![WeChat](https://icon.qiantucdn.com/20200614/46e9895e0b2596cfd868f428d1c5aad32)
 
