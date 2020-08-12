@@ -26,5 +26,5 @@ My WeChat ID   `acuteruirui`
 ## Use QQ to contact me
 **I don’t use QQ often, so I suggest using email to contact me**  
 My QQ ID   [754859587](https://qm.qq.com/cgi-bin/qm/qr?k=jCbVqE5gqT7het5XN68VEPeXTwMs__9C&noverify=0)  
-![qq](https://i.loli.net/2020/08/12/PjrQgoaZYn1dW2B.jpg)
+![qq](https://i.loli.net/2020/08/12/PjrQgoaZYn1dW2B.jpg)  
 :blush:
