@@ -1,5 +1,5 @@
 # hey
-本仓库Issues中为一些乱七八糟的教程，大部分为原创  
+  
 This article mainly introduces who is cute-ruirui and how you can contact her~
 
 
