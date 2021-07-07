@@ -16,8 +16,6 @@ or  `cute-ruirui@outlook.com`
 
 ## Use WeChat to contact me
 **If you don't know me in reality, please don't add me on WeChat, it is recommended to contact by email!**  
-My WeChat ID   `acuteruirui`
-![wechat](https://i.loli.net/2020/08/12/OzathrG5Ug421sY.jpg)
 
 ## Use QQ to contact me
 **I don’t use QQ often, so I suggest using email to contact me**  
